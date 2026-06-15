@@ -1,8 +1,10 @@
 ---
 share: true
 ---
-Do you smell it? It’s the smell of the ocean.  
-I’ve heard news of Dogel that they lost the war. It brought me so much relief knowing that those bastards got what they deserved—not to mention my... Now, here I am, atop this ship—this stolen ship, actually.  
+Do you smell it? ***Sniff.*** It’s the smell of the ocean. ***Cough, cough.*** “Ugh.”  
+I’ve heard news of Dogel that they lost the war. It brought me so much relief knowing that those bastards got what they deserved.  
+  
+Now, here I am, atop this ship—this empty ship, actually. It’s unbelievable that they can confidently leave their ship unattended, maybe Lady Luck is smiling upon me.  
   
 **DROWNING**  
 **INFECTION**  
@@ -20,11 +22,12 @@ Wood splinters almost caught my eye.
   
 “Fire! Fire! I want that voleuse dead!” Presumably the owner of the ship yelled.  
   
-“The sails aren’t opening? That bastard cut our sails!” Of course they are, I wouldn’t want the officers chasing after me.  
+“The sails aren’t opening? That bastard cut our sails!”  
+Of course they are, I wouldn’t want the officers chasing after me.  
   
 “Haha! So lo-”  
   
-**TRAUMA**  
+**IMPACT**  
 **BLEEDING**  
 *Duck*  
   
@@ -48,15 +51,17 @@ I pushed the door but it still felt a bit of a resistance.
 “Tsk. The door’s cut too large”  
 I’ve blown off the handle so I don’t have any leverage to pull up on the door.  
   
-“Any maidens trapped in here?” I jokingly asked.  
+***Shove, scrape.***  
+  
+“Any maidens ***huff*** trapped in here?” I jokingly asked.  
   
 ”Oh! I thought the bed would be a lot smaller, guess the captain lucked out.”  
 I restrained myself from jumping in the bed, who knows what kind of bed bugs it might carry?  
   
 I opened the single drawer under the bed, it’s filled with a fair amount of jewelry and silver, I might’ve gotten my hopes up but this should save me a few months on food.  
   
-“Huh?” I found a panel under the jewelry, it hid a folded piece of paper.  
+“Huh?” I found a panel under the jewelry, it hid a folded piece of animal hide. I think it was called vellum?  
   
-“This a map? For treasure? I wished Hilda taught me how to read maps cuz’ this looks interesting”  
+“This a map? Ooh, for treasure? Doesn’t look like Yurova. I wished Hilda taught me more about the globe.”  
   
-This map was clearly important as it was hidden inside the captain’s room. If I want something out this map I need to learn how to read it, alternatively, I could find someone well-versed in this type of deal.
+This map doesn’t look like a sea chart, I would guess it maps out some sort of land from somewhere. ***Sniff.*** It gave off a culinary-smoky smell. ***Sniff, sniff.*** It’s kinda good? If I want something out this map I need to learn how to read it, alternatively, I could find someone well-versed in this type of deal.
