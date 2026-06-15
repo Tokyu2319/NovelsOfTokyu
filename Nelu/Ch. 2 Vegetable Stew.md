@@ -20,7 +20,9 @@ The water gave me much needed rest. I continue to heat it.
   
 I know it’s a waste to spend my Willpower on water but this is exactly what I need right now. Afterwards I threw the dirty water overboard, including the grog aboard the ship. One full canteen is enough for me and it saves space, y’know?   
   
-Almost done with my chores, the last thing to do is to raid the cabin. ***Rustling.*** Thought as much, this was a merchant ship connected to Dogel, what atrocities were they up to this time?  
+Almost done with my chores, the last thing to do is to raid the cabin.  
+***Rustling***  
+Thought as much, this was a merchant ship connected to Dogel, what atrocities were they up to this time?  
   
 “Huh. Not much. It’s just paperwork.”  
   
@@ -75,9 +77,10 @@ Hey, I announced my peace and they responded with gunfire. Though, I can’t jus
 The fire was burning steadily. I had to use their own rum to fuel it; you could say I was ‘pouring one out’.  
 “Hehe.”  
   
-Loot count! 89 and a half kegs of powder, 23 swords, 18 guns, and a bottle of wine from the ship. ***Rumble.***  
+Loot count! 89 and a half kegs of powder, 23 swords, 18 guns, and a bottle of wine from the ship.  
+***Rumble***  
 “I forgot this whole kerfuffle was to hunt food.”  
-Which I found none aboard their ship, I guess they were also here to resupply  
+Which I found none aboard their ship, I guess they were also here to resupply.  
   
 ***Rustling***  
   
