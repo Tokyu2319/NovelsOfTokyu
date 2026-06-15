@@ -6,7 +6,7 @@ These works may contain fictional depictions of:
 - Offensive language
 - ...
 
-This work is a piece of fiction and may contain depictions of prejudice, discrimination, racism, xenophobia, ethnic stereotypes, offensive language, violence, and other themes that some readers may find distressing.
+These works are pieces of fiction and may contain depictions of prejudice, discrimination, racism, xenophobia, ethnic stereotypes, offensive language, violence, and other themes that some readers may find distressing.
 
 Such content is included for narrative, historical, cultural, or character-development purposes and does not necessarily reflect the views or beliefs of the author.
 
