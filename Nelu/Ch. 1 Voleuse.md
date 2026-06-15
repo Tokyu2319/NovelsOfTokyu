@@ -1,7 +1,8 @@
 ---
 share: true
 ---
-Do you smell it? ***Sniff.*** It’s the smell of the ocean. ***Cough, cough.*** “Ugh.”  
+Do you smell it? ***Sniff.*** It’s the smell of the ocean. ***Cough, cough.***  
+“Ugh.”  
 I’ve heard news of Dogel that they lost the war. It brought me so much relief knowing that those bastards got what they deserved.  
   
 Now, here I am, atop this ship—this empty ship, actually. It’s unbelievable that they can confidently leave their ship unattended, maybe Lady Luck is smiling upon me.  
@@ -39,7 +40,7 @@ That was close but I’ve done it. I just hope this ship has a treasure trove fu
   
 I walked down below the deck to see if they have any weapons in store, I don’t have enough on me for a fight. I targeted the biggest ship in the harbor and well… I hope it doesn’t disappoint.  
   
-***Crack***. There’s enough food for four persons yet I counted fifteen, sixteen? ***Munch***. I guess that’s why they docked in Marcelle. ***Gulp***.  
+***Crack.*** There’s enough food for four persons yet I counted fifteen, sixteen? ***Munch.*** I guess that’s why they docked in Marcelle. ***Gulp.***  
   
 Forty of so kegs of gunpowder is enough to start a problem but not enough to start *my* problems.  
   
