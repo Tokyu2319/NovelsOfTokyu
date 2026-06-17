@@ -44,6 +44,8 @@ I walked down below the deck to see if they have any weapons in store, I don’t
   
 Forty of so kegs of gunpowder is enough to start a problem but not enough to start *my* problems.  
   
+A single rowboat. Essential.  
+  
 Finally, the captain’s quarters is locked with a key, I’m gonna need to blast through with this one.  
   
 ***Bang!***  
@@ -52,9 +54,9 @@ I pushed the door but it still felt a bit of a resistance.
 “Tsk. The door’s cut too large”  
 I’ve blown off the handle so I don’t have any leverage to pull up on the door.  
   
-***Shove, scrape.***  
+***Shove, scrape***  
   
-“Any maidens ***huff*** trapped in here?” I jokingly asked.  
+“Any maidens *huff* trapped in here?” I jokingly asked.  
   
 ”Oh! I thought the bed would be a lot smaller, guess the captain lucked out.”  
 I restrained myself from jumping in the bed, who knows what kind of bed bugs it might carry?  
@@ -63,6 +65,6 @@ I opened the single drawer under the bed, it’s filled with a fair amount of je
   
 “Huh?” I found a panel under the jewelry, it hid a folded piece of animal hide. I think it was called vellum?  
   
-“This a map? Ooh, for treasure? Doesn’t look like Yurova. I wished Hilda taught me more about the globe.”  
+“This a map? Ooh, for treasure? Doesn’t look like Yurova. No coastlines and no inland seas. I wished Hilda taught me more about the globe.”  
   
-This map doesn’t look like a sea chart, I would guess it maps out some sort of land from somewhere. ***Sniff.*** It gave off a culinary-smoky smell. ***Sniff, sniff.*** It’s kinda good? If I want something out this map I need to learn how to read it, alternatively, I could find someone well-versed in this type of deal.
+This map doesn’t look like a sea chart. I would guess it maps out some sort of land from somewhere. ***Sniff.*** It gave off a culinary, smoky smell. ***Sniff, sniff.*** It’s kinda good? If I want something out of this map I need to learn how to read it; alternatively, I could find someone well-versed in this type of thing.
