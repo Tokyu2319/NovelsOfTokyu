@@ -3,9 +3,9 @@ share: true
 ---
 Do you smell it? ***Sniff.*** It’s the smell of the ocean. ***Cough, cough.***  
 “Ugh.”  
-I’ve heard news of Dogel that they lost the war. It brought me so much relief knowing that those bastards got what they deserved.  
+I’ve heard that the war is finally over. I thought it would end sooner but I guess they still had some fight left.  
   
-Now, here I am, atop this ship—this empty ship, actually. It’s unbelievable that they can confidently leave their ship unattended, maybe Lady Luck is smiling upon me.  
+Now, here I am, atop this ship—this empty ship, actually. It’s unbelievable that they can confidently leave their ship unattended; perhaps Lady Luck is smiling upon me.  
   
 **DROWNING**  
 **INFECTION**  
