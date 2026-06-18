@@ -15,7 +15,7 @@ I create water from my hands and let it flow into an empty cask, enough water to
 Too much water, at least it covers my body. Although it’s a little cramped, I should be able to rid of any stench.  
   
 “Hmm~”  
-The water gave me much needed rest. I continue to heat it.  
+The water gave me much needed comfort. I continue to heat it.  
 “Haa~”  
   
 I know it’s a waste to spend my Willpower on water but this is exactly what I need right now. Afterwards I threw the dirty water overboard, including the grog aboard the ship. One full canteen is enough for me and it saves space, y’know?   
@@ -26,7 +26,7 @@ Thought as much, this was a merchant ship connected to Dogel, what atrocities we
   
 “Huh. Not much. It’s just paperwork.”  
   
-Bah! Why should I care about this? Dogel’s history now, I should keep my focus on the ‘Vault’! Which I believe to be some sort of treasure according to this map? Wait no, I should focus on food and water. I’m gonna need to stop at an island, if not today, then tomorrow.  
+Bah! Why should I care about this? The war’s history now, I should keep my focus on the ‘Vault’! Which I believe to be some sort of treasure according to this map? Wait no, I should focus on food and water. I’m gonna need to stop at an island, if not today, then tomorrow.  
   
 This is gonna be my first time actually sailing a ship and reading a sea chart. From Marcelle there should be an island called Puttings, a vacant island. I should be able to make food for myself if there’s game.  
   
@@ -77,10 +77,11 @@ Hey, I announced my peace and they responded with gunfire. Though, I can’t jus
 The fire was burning steadily. I had to use their own rum to fuel it; you could say I was ‘pouring one out’.  
 “Hehe.”  
   
-Loot count! 89 and a half kegs of powder, 23 swords, 18 guns, and a bottle of wine from the ship.  
+Loot count! 89 and a half kegs of powder, 23 swords, 18 guns, and a bottle of wine from their ship.  
 ***Rumble***  
 “I forgot this whole kerfuffle was to hunt food.”  
-Which I found none aboard their ship, I guess they were also here to resupply.  
+***Pop***  
+Gah! The bottle’s empty… and there isn’t any food in their ship, I assume that’s why they docked here. Oh well.  
   
 ***Rustling***  
   
@@ -93,4 +94,4 @@ Which I found none aboard their ship, I guess they were also here to resupply.
 **UNDESIRED OUTCOME**  
 *Hold for a moment and shoot*  
   
-These rabbits should keep me from waking up in hunger. Tonight I’m making vegetable stew! From whatever vegetables I have on my ship…
+These rabbits should keep me from waking up in hunger. Tonight I’m making vegetable stew! From whatever vegetables I have stored in my ship…
