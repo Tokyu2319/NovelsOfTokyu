@@ -6,7 +6,7 @@ share: true
   
 It’s still morning guessing by the suns position. I didn’t really put in much work in that heist so I’m making it up by doing some chores. Gotta work on my uh… constitution. Hah, that’s a new word.  
   
-No luck finding weapons on the ship, makes sense though—always keep your gun by your side. What I did find was a book, a book on witch-hunting. Crossed off any doubts that they were good people. I tossed the book into the sea, mattress laid in the sunlight… Maybe I should clean the aft cabin last. ***Sniff***. Maybe I should clean myself!  
+No luck finding weapons on the ship, makes sense though—always keep your gun by your side. What I did find was a book, a book on witch-hunting. Crossed off any doubts that they were good people. I tossed the book into the sea, mattress placed in the sunlight… Maybe I should clean the aft cabin last. ***Sniff***. Maybe I should clean myself!  
   
 ***Trickle, rush***  
 I create water from my hands and let it flow into an empty cask, enough water to accommodate my… volume? It’s volume. I heat the water using my Will.  
