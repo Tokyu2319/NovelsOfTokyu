@@ -62,9 +62,10 @@ Woah! Looks like I didn’t noticed fast enough.
   
 “Grr…”  
 The fellow was groaning a lot, surprised he’s alert enough to shoot.  
-“Mmh…  D-Diana…”  
+“Mmh…  The rum…”  
 I should probably end his misery.  
   
+“So sorry.” I said with little effort.  
 ***Bang!***  
   
 Their ship was considerably smaller than mine but it did yield a good fifty kegs of gunpowder. “Nice!”  
@@ -77,7 +78,7 @@ Hey, I announced my peace and they responded with gunfire. Though, I can’t jus
 The fire was burning steadily. I had to use their own rum to fuel it; you could say I was ‘pouring one out’.  
 “Hehe.”  
   
-Loot count! 89 and a half kegs of powder, 23 swords, 18 guns, and a bottle of wine from their ship.  
+Loot count! 90 and a half kegs of powder, 23 swords, 18 guns, and a bottle of wine from their ship.  
 ***Rumble***  
 “I forgot this whole kerfuffle was to hunt food.”  
 ***Pop***  
