@@ -37,7 +37,7 @@ The smell of the sun. Its warmth gave me comfort in the cold dampness. Yet I did
 ***Rustle***  
 I tried to distract myself with the vellum land map… Now that I’ve looked closer at this map, it reminds me of Alkeluna. Hilda always went on about how it was bigger than Yurova. I squeezed the bridge of my nose.  
 “How could I forget such a thing?”  
-That changes things. I gonna have to make lots of plans if I’m heading to Alkeluna. This is starting to feel like a proper adventure! I’m too excited to sleep now, maybe I should take another bath.  
+That changes things. I‘m gonna have to make lots of plans if I’m heading to Alkeluna. This is starting to feel like a proper adventure! I’m too excited to sleep now, maybe I should take another bath.  
   
 ***Sploosh***  
 Still awake.  
@@ -48,7 +48,7 @@ Still awake.
 ”Pffft. Fffft. *Fweeet!* I whistled!”  
 Still awake.  
   
-“Alkeluna is Dünya’s largest continent, made up of 30—no—32 sovereign countries. It is…”  
+“Alkeluna is Dünya’s largest continent, made up of sixty—no—sixTEEN sovereign countries. It is…”  
 Still awake.  
   
 ***Swish, whir, whoosh…***  
@@ -56,5 +56,4 @@ Still awake.
 I’m still awake  
   
 ***Plop***  
-I laid on my bed.  
-***Sniffle…***
+I laid on my bed…
