@@ -21,7 +21,8 @@ Wood splinters almost caught my eye.
   
 “Aiyo! They’re carrying rifles? I should be good though.”  
   
-“Fire! Fire! I want that voleuse dead!” Presumably the owner of the ship yelled.  
+“Fire! Fire! I want that voleuse dead!”  
+Presumably, the owner of the ship yelled.  
   
 “The sails aren’t opening? That bastard cut our sails!”  
 Of course they are, I wouldn’t want the officers chasing after me.  

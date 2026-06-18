@@ -4,7 +4,7 @@ share: true
 ***Thwack, thwack, thwack.***  
 “Ei, ei, ei!” I smacked on the mattress.  
   
-It’s still morning guessing by the suns position. I didn’t really put in much work in that heist so I’m making it up by doing some chores. Gotta work on my uh… constitution. Hah, that’s a new word.  
+It’s still morning judging by the sun’s position. I didn’t really put in much work in that heist so I’m making it up by doing some chores. Gotta work on my uh… constitution. Hah, that’s a new word.  
   
 No luck finding weapons on the ship, makes sense though—always keep your gun by your side. What I did find was a book, a book on witch-hunting. Crossed off any doubts that they were good people. I tossed the book into the sea, mattress placed in the sunlight… Maybe I should clean the aft cabin last. ***Sniff***. Maybe I should clean myself!  
   
@@ -22,7 +22,7 @@ I know it’s a waste to spend my Willpower on water but this is exactly what I 
   
 Almost done with my chores, the last thing to do is to raid the cabin.  
 ***Rustling***  
-Thought as much, this was a merchant ship connected to Dogel, what atrocities were they up to this time?  
+Thought as much, this was a merchant ship connected to Dogel, whatever *transgression*  were they up to this time?  
   
 “Huh. Not much. It’s just paperwork.”  
   
