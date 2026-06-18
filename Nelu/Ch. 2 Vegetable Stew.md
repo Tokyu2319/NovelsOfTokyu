@@ -65,7 +65,7 @@ The fellow was groaning a lot, surprised he’s alert enough to shoot.
 “Mmh…  The rum…”  
 I should probably end his misery.  
   
-“So sorry.” I said with little effort.  
+“So sorry.”  
 ***Bang!***  
   
 Their ship was considerably smaller than mine but it did yield a good fifty kegs of gunpowder. “Nice!”  
