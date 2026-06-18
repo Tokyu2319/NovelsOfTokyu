@@ -77,4 +77,4 @@ Man am I good at this! I’m scoring so much right now. The sun has fully set no
 On the waterfront I see the taverns, inns, but most importantly a brothel filled with many customers. I should pass as a man but I don’t intend to trick any of the workers, I have to be honest with them if I want to get my much needed Rest.  
   
 ***Jingle, jingle***  
-I’ll finally able to get some Rest
+I’ll finally able to get some Rest.
