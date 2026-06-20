@@ -37,10 +37,7 @@ The smell of the sun. Its warmth gave me comfort in the cold dampness. Yet I did
 ***Rustle***  
 I tried to distract myself with the vellum land map… Now that I’ve looked closer at this map, it reminds me of Alkeluna. Hilda always went on about how it was bigger than Yurova. I squeezed the bridge of my nose.  
 “How could I forget such a thing?”  
-That changes things. I‘m gonna have to make lots of plans if I’m heading to Alkeluna. This is starting to feel like a proper adventure! I’m too excited to sleep now, maybe I should take another bath.  
-  
-***Sploosh***  
-Still awake.  
+That changes things. I‘m gonna have to make lots of plans if I’m heading to Alkeluna. This is starting to feel like a proper adventure! I’m too excited to sleep now, maybe I work myself out.  
   
 “19, 20! 21, *huff* 22, 23…”  
 Still awake.  
@@ -53,7 +50,10 @@ Still awake.
   
 ***Swish, whir, whoosh…***  
 “Hya! Tei! Hoa!”  
-I’m still awake  
+Still awake  
+  
+***Sploosh***  
+I’m still awake.  
   
 ***Plop***  
 I laid on my bed…
