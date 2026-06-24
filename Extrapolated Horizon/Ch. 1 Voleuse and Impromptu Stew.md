@@ -103,6 +103,7 @@ Gah! There’s only vegetables and spices on the ship. What I want is meat or ma
   
 I’m missing a spyglass but I can see that there’s another ship anchored on this island. I should announce my presence. Don’t want a bloodshed right after coming here.  
   
+  
 The sickly-sweet stench of flesh assault my nose.  
   
 “Hey, hey! It’s okay, stay with me.”   
@@ -132,13 +133,14 @@ I tugged them to the right and the shell missed us.
   
 There’s ringing in my ears but I can still hear the cries of the children. They’ll survive this. I’ll make sure of that. And this trauma... I hope they forget it.  
   
+  
 The warm air is tainted with the smell of rust.  
   
 As I was rolling the last keg of gunpowder from these gentlemen I noticed that one body was reaching for their gun.  
   
 “Hey. You wanna live” I say to him.  
   
-He spat at me. Unsuccessfully. Considering that he was **lying** on his back, he hocked his loogie at himself, which made me feel a bit bad for him. Then he insulted my—yet to be found—mother, calling her a whore. I put a gun towards his head.  
+He spat at me. Unsuccessfully. Considering that he was lying on his back, he hocked his loogie at himself, which made me feel a bit bad for him. Then he insulted my—yet to be found—mother, calling her a whore. I put my gun towards his head.  
   
 “So sorry.”  
   
