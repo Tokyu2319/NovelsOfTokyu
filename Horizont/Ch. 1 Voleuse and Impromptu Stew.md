@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-I hear the waves crashing against the hull. The fishy smell of the market hits my nose. The sun is coming up from the west. The war’s finally over. I thought it would end sooner but I guess they still had some fight left.  
+I hear the waves crashing against the hull. The fishy smell of the market hits my nose. The sun is coming up from the east. The war’s finally over. I thought it would end sooner but I guess they still had some fight left.  
 Now here I am pushing the capstan of this ship—this empty ship, actually. It’s unbelievable that they can confidently leave their ship unattended. I couldn’t let this beautiful opportunity slip by.  
   
 Hah. Maybe I should take this slow. I don’t think they’re coming back sooner or later.  
