@@ -112,7 +112,7 @@ I chase the boar. The boar ran fast. Not as fast as me. I clasp my hands and plu
 Clean water waters me. Water water. I ripped the boar, from ass to head, and then cleaned it of blood to not *foul* it. After that I take a few sips of the river water. Rei hasn’t wake up but I can clean her here. I’ve cleaned myself before but I can’t wipe off the paint on my body. Maybe that’s good. Reminders of Papa.  
   
 I think I’m an apex predator? Nothing can kill me here so yes, I’m an apex among predators. I arrive to our home, I don’t think this is a good home. We can always move out.  
-I take some firewood into a pile. I grabbed two rocks that can make sparks. I put my back towards Rei so that she doesn’t get hurt. I strike.  
+I take some firewood into a pile. I grabbed two rocks that can make sparks. I put my back towards Rei so that she doesn’t get hurt. I strike and sparks immediately came out.  
   
 Always so violent me.  
   
