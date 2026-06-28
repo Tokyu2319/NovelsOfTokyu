@@ -31,7 +31,6 @@ Just the weather huh? Actually no. I should’ve taken its warning. I can’t co
   
 **IMPACT**  
 **BURNING**  
-*Carry a keg of gunpowder onto the rowboat*  
 *Take the rowboat*  
 *Heave aways from the ship*  
   
@@ -42,20 +41,21 @@ What? What about my the SSD?
   
 Oh thank goodness. Y’know I would’ve remained trapped in the ocean without that ship. Hold on. The water has started raging and crashing into each other.  
   
-As instructed I rolled a keg onto the rowboat and took off with it. I’m about as far away as comfort can allow.  
+It didn’t mentioned it but I rolled a keg onto the rowboat then took off with it.  
+I’m about as far away as comfort can allow.  
   
 The water sways my boat as I keep the keg from wobbling off of it. Then, suddenly, a large body of paleness resurfaces from the ocean. Its skin is scarred and carved by what I assume are harpoons. There are bruisings on its body which tells me of gunfire.  
-I don’t know what you are or what you’ve done to keep yourself hidden from the mouths of sailors but there’s one thing I pieced together here. That is you’re after my soul.  
+I don’t know what you are or what you’ve done to keep yourself hidden from the mouths of sailors but there’s one thing I pieced together here. That is, you’re playing a sick game with me.  
   
-The Pallidness surfaces into the ocean, now unseen from my eyes and from my rifle.  
+The Pallidness resurfaces into the ocean, now unseen from my eyes and from my rifle.  
   
 **IMPACT**  
 **DROWNING**  
-*Heave to the right or left and fire accordingly*  
+*Heave to the right or left*  
   
 Fucking hell. What do you expect me to do!? I’m rowing as fast as I can!  
   
-The Pallidness opened its maw as it surfaces. I’m convinced it’s playing with its meal.  
+The Pallidness opened its maw as it surfaces. Its mouth is lined with gnawing teeth.  
   
 Like mine its eyes are narrow. I couldn’t keep a straight aim on one. I fired and switched to my sidearm. What now? I don’t think it had any effect.  
   
@@ -81,10 +81,10 @@ The Pallidness surface and opened its maw. Bastard assumed I can’t use anythin
 **DROWNING**  
 *Abandon the boat*  
   
-Huh. I thought I could just drop the keg and shoot from the boat, then again this thing only tells me of certain death. If I’ve known that I wouldn’t’ve strayed so far away from the ship. I took off from the boat and a prepared a pellet to fire.  
+Huh. I was planning to drop the keg right as it approached me, I guess this works better. I took off from the boat and a prepared a pellet to fire.  
 Hoping that now it can’t see me I can make it back to the ship but of course it happened to surface again. Except this time it’s about to chew on a bunch of splinters and nails.  
   
-Without letting the water get my eye I aimed at the keg and when its maw approached the boat I fired.  
+Without letting the water get my eye I aimed at the keg, and when its maw approached the boat, I fired.  
   
 ***Kaboom!***  
   
@@ -99,4 +99,4 @@ Could this thing be smarter than it seemed?
 **DESIRED OUTCOME**  
 *Safe for the next week*  
   
-Looks like I’ll be fine for now. I’m gonna need to take a bath, I smell like fish.
+Vague but it looks like I’ll be fine for now. I’m gonna need to take a bath, I smell like fish.
