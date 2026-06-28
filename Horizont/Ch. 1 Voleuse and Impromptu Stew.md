@@ -11,7 +11,7 @@ Hah. Maybe I should take this slow. I don’t think they’re coming back sooner
 **BLEEDING**  
 *Push the capstan faster*  
   
-Oh shit.  
+Oh piss.  
 I can hear running, they’re getting louder and closer to this ship. I decide to continue lifting the anchor.  
   
 ***Bang!***  
