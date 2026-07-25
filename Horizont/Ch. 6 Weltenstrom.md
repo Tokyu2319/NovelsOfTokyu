@@ -7,7 +7,7 @@ navigation,
 astronomy, etc…  
   
 An awful lot for one maid, but it’s necessary to be Elena’s retainer. To be her trusted companion.  
-Elena took in a baby today. She named him Leon. They were risking it when they took me in, but if they ever find out about Leon… We’ll be executed for showing sympathy.  
+Oktober 29th, 1884, Elena took in a baby today. She named him Leon. They were playing it safe when they took me in, but if they ever find out about Leon… We’ll be executed for showing sympathy.  
 How could they? To see a little boy in contempt. That kind of thinking is rotten.  
   
 *The hull of the ship splits the ocean water.*  
