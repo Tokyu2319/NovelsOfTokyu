@@ -62,7 +62,7 @@ Gathering the courage, Nelu lifted herself off the barrel and walked towards the
   
 “Was this? Nah, I’ve gone too far. No going back now.”  
   
-With no other towel, instead of covering herself from no one except me, she wraps the towel on her hair to dry it out. Then, she went to do another chore, laundry.  
+With no other towel, instead of covering herself from no one (except me), she wraps the towel on her hair to dry it out. Then, she went to do another chore, laundry.  
   
 It is 12:08 noon, no overcast.  
   
