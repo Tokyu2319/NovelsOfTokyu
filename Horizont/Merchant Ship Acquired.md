@@ -125,4 +125,4 @@ Nelu finishes her meal in 17 minutes. She picks up her equipment and sees that t
 [^1]: Sodomite: A person who engages in a romantic or sexual relationship with another person of the same sex; the term may also be applied to men who exhibit feminine behavior or women who exhibit masculine behavior.  
 [^2]: Hylogenesis: The conversion Mana into Matter. Nelu’s usage here is considered lesser hylogenesis, which produces thermal energy as a byproduct.  
 [^3]: Manokinesis: The manipulation of Manon to exert force on objects. Nelu’s usage here is instinctive as she would not know the physics of heating water using mechanical force.  
-[^4] Mana: A fundamental resource used for thaumical practice and required to maintain the relationship between a Being’s Soul, Mind, and Vessel. Nelu did not say the word ‘mana.’
+[^4]: Mana: A fundamental resource used for thaumical practice and required to maintain the relationship between a Being’s Soul, Mind, and Vessel. Nelu did not say the word ‘mana.’
