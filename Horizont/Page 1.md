@@ -42,14 +42,14 @@ Nelu leaves the bed to dry. Nelu picks up a feather duster from the cabin to dus
   
 Nelu: <Navigation, manuals, medicine, maritime Laws, yada-yada…>  
   
-Nelu found a book containing instructions for identifying and avoiding sodomites, as well as legal procedures governing the use of torture to extract confessions from them during trials.[^2] Nelu covered her mouth with her left hand while her other hand held the book. Nelu closed the book and took it outside to throw it into the sea. Nelu‘s face appears disgusted.  
+Nelu found a book containing instructions for identifying and avoiding sodomites, as well as legal procedures governing the use of torture to extract confessions from them during trials.[^1] Nelu covered her mouth with her left hand while her other hand held the book. Nelu closed the book and took it outside to throw it into the sea. Nelu‘s face appears disgusted.  
   
 Nelu: <I feel dirty now…>  
   
 11:24  
-Nelu acquired a brush from the lower deck and was able to get a barrel of grog onto the deck, she dumps the grog into the sea. Nelu begins cleaning the barrel with the brush and her own soap. After cleaning the barrel for 8 minutes, Nelu put her right palm over the opening of the barrel and used hylogenesis[^3] to fill the barrel with water. Nelu then used manokinesis[^4] seemingly to heat up the water inside the barrel to a comfortable temperature. The temperature of the water inside the barrel shows 38ºC[^5]. Nelu then took off her garments, her undergarments, and her hair tie which held up her hair bun. Nelu puts herself feet first into the warm water.  
+Nelu acquired a brush from the lower deck and was able to get a barrel of grog onto the deck, she dumps the grog into the sea. Nelu begins cleaning the barrel with the brush and her own soap. After cleaning the barrel for 8 minutes, Nelu put her right palm over the opening of the barrel and used hylogenesis[^2] to fill the barrel with water. Nelu then used manokinesis[^3] seemingly to heat up the water inside the barrel to a comfortable temperature. The temperature of the water inside the barrel shows 38ºC[^4]. Nelu then took off her garments, her undergarments, and her hair tie which held up her hair bun. Nelu puts herself feet first into the warm water.  
   
-Nelu: <Haaa… That’s nice. Haven’t used magic that much. It’s a lot of mana[^6], but it’s not like I’m gonna use magic all that often out here.>  
+Nelu: <Haaa… That’s nice. Haven’t used magic that much. It’s a lot of mana[^5], but it’s not like I’m gonna use magic all that often out here.>  
   
 11:58  
 Nelu has been washing herself for a duration of 24 minutes.  
@@ -74,11 +74,11 @@ Nelu saw another ship anchored near the shore of the island.
   
 Nelu: <Better announce myself. Don’t wanna give any kind of misunderstandings.>  
   
-Nelu stepped back from the helm, and a lead ball flew past her. Nelu’s movement preceded the projectile’s arrival by approximately 0.8 seconds. No apparent auditory, visual, or physical stimulus was identified that would reasonably explain the movement.[^1]  
+Nelu stepped back from the helm, and a lead ball flew past her. Nelu’s movement preceded the projectile’s arrival by approximately 0.8 seconds. No apparent auditory, visual, or physical stimulus was identified that would reasonably explain the movement.[^6]  
   
 “Huh. Maybe they just— misfired?>  
   
-Nelu stepped back again and another ball passes her.[^1]  
+Nelu stepped back again and another ball passes her.[^6]  
   
 Nelu: <Okay, these folks don’t seem that friendly.>  
   
@@ -118,9 +118,9 @@ Nelu opens the small crab by first cracking it with the hilt of her sword and pr
 13:37  
 Nelu picks up her equipment and sees that her opposition’s ship has finally fallen on itself due to the fire. Nelu climbs up the rope to her ship with an indifferent look on her face. She raised her anchor and set course to another destination.  
   
-[^1]: Possible precognitive event  
-[^2]: Sodomite: A person who engages in a romantic or sexual relationship with another person of the same sex; the term may also be applied to men who exhibit feminine behavior or women who exhibit masculine behavior.  
-[^3]: Hylogenesis: The conversion Mana into Matter. Nelu’s usage here is considered lesser hylogenesis, which produces thermal energy as a byproduct.  
-[^4]: Manokinesis: The manipulation of Manon to exert force on objects. Nelu’s usage here is instinctive as she would not know the physics of heating water using mechanical force.  
-[^5]: Measurements are given using the metric system.  
-[^6]: Mana: A fundamental resource used for thaumical practice and required to maintain the relationship between a Being’s Soul, Mind, and Vessel. Nelu did not say the word ‘mana.’  
+[^1]: Sodomite: A person who engages in a romantic or sexual relationship with another person of the same sex; the term may also be applied to men who exhibit feminine behavior or women who exhibit masculine behavior.  
+[^2]: Hylogenesis: The conversion Mana into Matter. Nelu’s usage here is considered lesser hylogenesis, which produces thermal energy as a byproduct.  
+[^3]: Manokinesis: The manipulation of Manon to exert force on objects. Nelu’s usage here is instinctive as she would not know the physics of heating water using mechanical force.  
+[^4]: Measurements are given using the metric system.  
+[^5]: Mana: A fundamental resource used for thaumical practice and required to maintain the relationship between a Being’s Soul, Mind, and Vessel. Nelu did not say the word ‘mana.’  
+[^6]: Possible precognitive event
