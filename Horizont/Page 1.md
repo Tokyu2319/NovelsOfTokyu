@@ -76,7 +76,7 @@ Nelu: <Better announce myself. Don’t wanna give any kind of misunderstandings.
   
 Nelu stepped back from the helm, and a lead ball flew past her. Nelu’s movement preceded the projectile’s arrival by approximately 0.8 seconds. No apparent auditory, visual, or physical stimulus was identified that would reasonably explain the movement.[^6]  
   
-“Huh. Maybe they just— misfired?>  
+“Nelu: <Huh. Maybe they just— misfired?>  
   
 Nelu stepped back again and another ball passes her.[^6]  
   
