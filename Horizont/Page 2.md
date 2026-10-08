@@ -1,182 +1,175 @@
 ---
 share: true
 ---
-# 29.1.1130  
-  
+# 29·1·1130  
 21:00 — Inside an underground facility.  
   
-There are two (2) individuals, designated ’A’ and ‘B’ (before they are given any other identifiers). ’A’ is inside a glass cylinder submerged in a clear liquid and is wearing a mask equipped with an endotracheal tube. ‘B’ is lying back on a table with electrodes attached to her head, the electrodes are connected to a galvanometer. They are both unconscious.  
+There are 2 (two) individuals, designated ’A’ and ‘B’ (before they are given any other identifiers). ’A’ is inside a glass cylinder submerged in a clear liquid and is wearing a mask equipped with an endotracheal tube. ‘B’ is lying back on a table with electrodes attached to her head, the electrodes are connected to a galvanometer. They are both unconscious.  
   
-7 months after ‘A’ was born, she now wakes up inside her containment. ‘A’’s first reaction to waking up is looking at ‘B’ for a period of 5 hours, 16 minutes, and 40 seconds. ‘A’ had done nothing else during that time except watching ‘B’.  
+7 months after ‘A’ was born (29·6·1129), she wakes up inside her containment for the very first time. ‘A’’s first reaction to waking up is looking at ‘B’ for a period of 5 hours, 16 minutes, and 40 seconds. ‘A’ had done nothing else during that time except watching ‘B’.  
 After that period, ‘A’ looked at her hands and, similar to that of a toddler, began making gestures. ’A’ then pressed her hands onto the glass containing her and began watching ‘B’ for the remainder of the day.  
   
-# 30.1.1130  
-  
-It is 04:16.  
-  
+# 30·1·1130  
+04:16  
 A man named Josef Menzel enters the room where ‘A’ and ’B’ reside in. He notices that ‘A’ has woken up, but inspects with ‘B’ first. ‘A’ is slapping at the glass, her reaction is presumed to be distress. Her action turns from slapping to pounding before falling asleep due to an automatic administration of anesthesia.  
   
-It is 15:44  
-  
+15:44  
 ‘A’ wakes up to see Josef absent. She stares at “B” for the remainder of the day.  
   
-# 1.2.1130  
-  
-It is 04:02  
-  
+# 1·2·1130  
+04:02  
 Josef enters the room and ‘A’ averts her attention from ‘B’ to Josef. He puts his bag on a desk and opens it, revealing the following: documents, blank papers, picture books, and a pen.  
   
 Josef approaches the containment for ‘A’ and puts his right hand on the glass. After a pause, ‘A’ responds by pressing her left hand on the same place Josef is pressing. ‘A’ then pressed her right hand and Josef responds by pressing his left hand on where ‘A’’s right hand is placing.  
   
-Josef finishes the moment and goes to his desk and began writing “Kell” on a blank paper. He approaches ‘A’ again and shows the writing on the paper. ‘A’ tilted her head in confusion. Josef points at the writing and at ‘A’. She then points at herself. Josef nodded and did the same gesture again and again.  
+Josef finishes the moment and goes to his desk and began writing ‘Kell‘ on a blank paper. He approaches ‘A’ again and shows the writing on the paper. ‘A’ tilted her head in confusion. Josef points at the writing and at ‘A’. She then points at herself. Josef nodded and did the same gesture again and again.  
   
-Josef goes to his desk again and wrote ‘Ren’ on the other side of the paper. He then approaches ‘B’ and did the same gesture. It seems that ‘A’ understands this interaction.  
+Josef goes to his desk again and wrote ‘Ren‘ on the other side of the paper. He then approaches ‘B’ and did the same gesture. It seems that ‘A’ understands this interaction.  
   
-‘A’ and ‘B’ are now named as ’Kell’ and ’Ren’.  
+‘A’ and ‘B’ are now designated ’Kell’ and ’Ren’.  
   
-After Josef establisher their identity, he moves on to his desk to pick up a picture book. Josef moves his chair and places it so that the backrest faces her containment. He sits down and opens the first page of the book, holding it over his head to ensure that Kell is able to view it. Josef begins reading the contents of the book aloud looking up. This goes on for 10 hours with Josef eating and resting in between. When he finishes reading the 6th book to Kell, Josef kneels down besides Kell’s containment and that’s when Kell fell asleep.  
+After Josef establishes their identity, he moves on to his desk to pick up a picture book. Josef moves his chair and places it so that the backrest faces her containment. He sits down and opens the first page of the book, holding it over his head to ensure that Kell is able to view it. Josef begins reading the contents of the book aloud looking up. This goes on for 10 hours with Josef eating and resting in between. When he finishes reading the 6th book to Kell, Josef kneels down beside Kell’s containment and that’s when Kell fell asleep.  
   
-# 15.2.1130  
-  
+# 15·2·1130  
 During these 2 weeks, Kell has recognized literacy, language, natural sciences, and empathy, all of which are defined by Josef. Whether Kell has understood these concepts is currently unknown at the time of writing.  
   
-Ren is still lying unconscious on the table, but she’s now connected to an armature.[^1]  
+Ren is lying unconscious on the table, but she’s now connected to an armature.[^1]  
   
-It is 09:23  
+09:23  
+Josef enters the room with a hammer and places it onto Ren’s table. He then unplugs Ren from the armature and holds Ren’s head in his hands. After that, Josef grabs the hammer and strikes the bottom of the glass of Kell’s containment. Kell is conscious and has been watching the whole time. After 7 (seven) hits, the bottom glass shattered and liquid began to spill into a drain below. Josef pries the glass to make a bigger opening. Kell is able to slip out with her body lying on her right side, Kell is unable to stand up. Josef grabs Kell’s left shoulder with his left hand and opens her mask with his right hand.  
   
-Josef enters the room with a hammer and places it onto Ren’s table. He then unplugs Ren from the armature and proceeds hold Ren’s head in his hands. After that, Josef grabs the hammer and strikes the bottom of the glass of Kell’s containment. Kell is conscious and has been watching the whole time. After 7 hits, the bottom glass shattered and liquid began to spill into a drain below. Josef pries the glass to make a bigger opening. Kell is able to slip out with her body lying no her right side, unable to stand up. Josef grabs Kell’s left shoulder with his left hand and opens her mask with his right hand.  
+Josef: <Kell, breathe! In and out.>  
   
-“Kell, breathe! In and out.” Josef says in urgency  
+Kell followed his instructions and tries to breathe. Kell tries to stand up with her legs while Josef helps her.  
   
-Kell followed his instructions and tries to breathe. She tries to stand up with her legs while Josef helps her.  
+Kell: <Papa… What’s wrong?>   
   
-”Papa… What’s wrong?” Kell says as she coughs to clean her throat of vomit.  
+Kell coughs and discharges the leftover fluid in her throat.  
   
-“C’mon, you need to carry your sister.”  
+Josef: <C’mon, you need to carry your sister.>  
   
-“Okay.”  
+Kell: <Okay.>  
   
-Kell approaches Ren and for the first time, she’s able to finally touch her. Kell gently picks up Ren and after that, Josef grabs Kell by the her right arm.  
+Kell approaches Ren and for the first time, Kell puts her palm on Ren’s face. Kell gently picks up Ren and after that, Josef grabs Kell by her right arm.  
   
-“Can you run, Kell?”  
+Josef: <Can you run, Kell?>  
   
-“Yes, Papa.”  
+Kell: <Yes, Papa.>  
   
-“Okay, we’re running. Keep up, okay?”  
+Josef: <Okay, we’re running. Keep up, okay?>  
   
-“Okay.”  
+Kell: <Okay.>  
   
-The two of them, with Ren in Kell’s arms, began running through the facility. The facility is built with concrete and steel supports, the halls are illuminated with incandescent light bulbs. They approach a fork in the facility.  
+Josef, Kell, and Ren in Kell’s arms, ran through the facility. The facility is built with concrete and steel supports, the halls are illuminated with incandescent light bulbs. They approached a fork in the facility.  
   
-“Here, to the left!”  
+Josef: <Here, to the left!>  
   
-It is 09:27  
-  
+09:27  
 Josef, Kell, and Ren arrived at where Josef guided them.  
   
-“Step inside, Kell.”  
+Josef: <Step inside, Kell.>  
   
 Josef pulls Kell inside the elevator and pushes a button labeled ‘EG’ which prompted the doors to close and the elevator to rise.  
   
-”What’s this, Papa?”  
+Kell: <What’s this, Papa?>  
   
-“An elevator— A lift, it takes us up.”  
+Josef: <An elevator— A lift, it takes us up.>  
   
-“Where?”  
+Kell: <To where?>  
   
-“The outside, remember? Those pictures.”  
+Josef: <The outside, remember? Those pictures.>  
   
-“Of course I do.”  
+Kell: <Of course I do.>  
   
-“You’ll get to see that.”  
+Josef: <You’ll get to see that.>  
   
-“Wow.”  
+Kell: <Wow.>  
   
-After 1 minute and 20 seconds, the doors open. Kell leaves the elevator.  
+09:28  
+The doors open. Kell leaves the elevator.  
   
-“Wow! Is this—?”  
+Kell: <Wow! Is this—?>  
   
-“Yes, Kell.”  
+Josef: <Yes, Kell.>  
   
-“It’s so bright!”  
+Kell: <It’s so bright!>  
   
-“It is, Kell.”  
+Josef: <It is, Kell.>  
   
-“Are you coming, Papa?”  
+Kell: <Are you coming, Papa?>  
   
-“N-no, Kell…”  
+Josef: <N-no, Kell…>  
   
-“Why not?”  
+Kell: <Why not?>  
   
-“I… have work to do.”  
+Josef: <I… have work to do>  
   
-“What kind of work?”  
+Kell: <What kind of work?>  
   
-“Very important work.”  
+Josef: <Very important work.>  
   
 After a second of silence.  
   
-“Am I… not important?”  
+Kell: <Am I… not important?>  
   
-“Kell—! That’s not what I mean.”  
+Josef: Kell—! <That’s not what I mean.>  
   
-“What do you mean?”  
+Kell: <What do you mean?>  
   
-“It’s hard to explain...”  
+Josef: <It’s hard to explain..>  
   
-“Then tell me. I’m smart, I’ll know.”  
+Kell: <Then tell me. I’m smart, I’ll know.>  
   
 After 5 seconds of silence from Josef.  
   
-“Remember the anchorite?”  
+Josef: <Remember the anchorite?>  
   
-“…Yeah. From the books.”  
+Kell: <…Yeah. From the books>  
   
-“He’s what I am. The important work the anchorite does is how important it is for me.”  
+Josef: <He’s what I am. The important work the anchorite does is how important it is for me.>  
   
-“I don’t— Am I suppose to leave you?”  
+Kell: <I don’t— Am I supposed to leave you?>  
   
-“Yes, Kell. I’m to release you and you to leave me.”  
+Josef: <Yes, Kell. I’m to release you and you to leave me.>  
   
-”I don’t want to.”  
+Kell: <I don’t want to.>  
   
-“Well, c’mere.”  
+Josef: <Well, c’mere.>  
   
-Kell kneels down to Josef.  
+Kell kneels down to Josef’s height.  
   
-“You’re my greatest creations, the both of you. Don’t ever forget that.”  
+Josef: <You’re my greatest creations, the both of you. Don’t ever forget that.>  
   
 Kell nodded.  
   
-“Whatever the both of you do out here, make sure to do good and—let’s see—ah, and don’t disappoint me.”  
+Josef: <Whatever the both of you do out here, make sure to do good and—let’s see—ah, and don’t disappoint me.>  
   
 Kell nodded again, sniffling.  
   
-“Alright, run now.”  
+Josef: <Alright, run now.>  
   
-“Huh?”  
+Kell: <Huh>  
   
-“Your legs can take you anywhere, Kell. Go, run.”  
+Josef: <Your legs can take you anywhere, Kell. Go, run.>  
   
-”Okay, Papa…”  
+Kell: <Okay, Papa…>  
   
-Kell stood up and turned around. She began walking away from the elevator, slowly picking up pace from a gentle gait to a sprint. She sprinted so fast that her legs were able to propel herself upwards into the air. During those jumps, she would look back again at Josef who became smaller and smaller in Kell’s view until ~~he disappeared~~ visual contact is lost.  
+Kell stood up and turned around. She began walking away from the elevator, slowly picking up pace from a gentle gait to a sprint. She sprinted so fast that her legs were able to propel herself upwards into the air. During those jumps, she would look back again at Josef who became smaller and smaller in Kell’s view until her visual contact with him is lost.  
   
 ---  
   
 # Kell  
 Species: Artificial Humanoid  
 Sex: Female  
-Birthdate: 29.6.1129  
+Birthdate: 29·6·1129  
   
-Description: Kell stands tall at 176 cm and weighs 73 kg with a fit build.[^2] She has thermal pit organs under her eyes whose functions are currently unknown. Her hair is black and 45 cm long, and her eyes are brown. Her entire body is tattooed in black ink with patterns resembling an integrated circuit layout. The patterns gradually become less complex toward the ends of her limbs, leaving her hands and feet unaffected.  
+Description: Kell stands tall at 176 cm and weighs 73 kg with a fit build. Kell has thermal pit organs under her eyes whose functions are currently unknown. Kell’s hair is black and 45 cm long, and her eyes are brown. Kell’s entire body is tattooed in black ink with patterns resembling an integrated circuit layout. The patterns gradually become less complex toward the ends of her limbs, leaving her hands and feet unaffected.  
   
 # Ren  
 Species: Artificial Humanoid  
 Sex: Female  
-Birthdate: 29.6.1129  
+Birthdate: 29·6·1129  
   
-Description: Ren stands tall at 151 cm and weighs 44 kg with a slim build. Her hair is black and 24 cm long, and her eyes are brown.  
+Description: Ren stands tall at 151 cm and weighs 44 kg with a slim build. Ren’s hair is black and 24 cm long, and her eyes are brown.  
   
-[^1]: Armature: An armana structure approaching the complexity of a Mind. Used for performing complicated thaumical practices  
-[^2]: Measurements are given using the metric system.
+[^1]: Armature: An armana structure approaching the complexity of a Mind. Used for performing complicated thaumical practices.
