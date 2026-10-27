@@ -1,9 +1,9 @@
 ---
 share: true
 ---
-Dear CLUMSY SABITHA,
+Dear LAZY AND SLOTHFUL SABITHA,
 
-Following an administrative review of your recent conduct and performance, the Library Administration has decided to demote you from your current title as CLUMSY SABITHA to THE FIRST SABA, effective immediately.
+Following an administrative review of your recent conduct and performance, the Library Administration has decided to demote you from your current title as LAZY AND SLOTHFUL SABITHA to THE FIRST SABA, effective immediately.
 
 This decision was reached after careful consideration of your performance, adherence to institutional policies, and fulfillment of your assigned responsibilities.
 
