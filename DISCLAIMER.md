@@ -14,5 +14,6 @@ Characters within this story may express opinions, attitudes, or use language th
 
 Reader discretion is advised.
 
+
 > [!TIP]
-> **Best Reading Experience:** This document uses footnotes. If you prefer reading them as hover previews (instead of jumping to the bottom of the page), we recommend using the free [Refined GitHub](https://github.com) browser extension.
+> **Best Reading Experience:** This document uses footnotes. If you prefer reading them as hover previews (instead of jumping to the bottom of the page), I recommend using the free [Refined GitHub]([https://github.com](https://github.com/refined-github/refined-github)) browser extension.
