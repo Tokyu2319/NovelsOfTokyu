@@ -3,13 +3,13 @@ share: true
 ---
 Dear CLUMSY SABITHA,
 
-Following an administrative review of your recent conduct and performance, the Library Administration has decided to demote you from your current title as CLUMSY SABITHA to SABA, effective immediately.
+Following an administrative review of your recent conduct and performance, the Library Administration has decided to demote you from your current title as CLUMSY SABITHA to THE FIRST SABA, effective immediately.
 
 This decision was reached after careful consideration of your performance, adherence to institutional policies, and fulfillment of your assigned responsibilities.
 
-Your duties and authority will be adjusted to reflect your new position. Further details regarding your revised responsibilities, compensation, and reporting structure will be provided in a separate document.
+Your duties and authority will be adjusted to reflect your new title. Further details regarding your revised responsibilities, compensation, and reporting structure will be provided in a separate document.
 
-You are expected to complete the transfer of your current responsibilities, including the submission of relevant records and the return of any institutional materials that are no longer required for your new position.
+You are expected to complete the transfer of your current responsibilities, including the submission of relevant records and the return of any institutional materials that are no longer required for your new title.
 
 Should you require clarification regarding this decision, please contact the Library Administration.
 
