@@ -13,3 +13,6 @@ Such content is included for narrative, historical, cultural, or character-devel
 Characters within this story may express opinions, attitudes, or use language that is offensive or objectionable. These portrayals are intended to represent the characters and setting, not to endorse such views.
 
 Reader discretion is advised.
+
+> [!TIP]
+> **Best Reading Experience:** This document uses footnotes. If you prefer reading them as hover previews (instead of jumping to the bottom of the page), we recommend using the free [Refined GitHub](https://github.com) browser extension.
